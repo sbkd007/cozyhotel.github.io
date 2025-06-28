@@ -1,0 +1,1 @@
+# cozyhotel.github.io
